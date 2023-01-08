@@ -1,1 +1,0 @@
-# sedot-wc
